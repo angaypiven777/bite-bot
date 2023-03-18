@@ -4,7 +4,7 @@
   <img width=50% height=50% alt="" src="https://upload.wikimedia.org/wikipedia/commons/thumb/0/01/Bufo_bufo_03-clean.jpg/1024px-Bufo_bufo_03-clean.jpg">
 </picture>
 <br>
-Подпишись на наш телеграм https://t.me/holey_moon
+Подпишись на наС https://vk.com/opolchenie_rf
 <br>
 
 ### УСТАНОВКА
